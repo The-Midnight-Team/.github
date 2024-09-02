@@ -1,1 +1,5 @@
-"Those who seek for daylight await in the midnight."
+**"Those who seek for the daylight await in the midnight."**
+
+----
+
+*However, what is behind the midnight?*
